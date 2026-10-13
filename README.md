@@ -1,2 +1,2 @@
-# VishaliniKanaga
+# Vishalini Kanaga
 Vishalini Kanaga Website
